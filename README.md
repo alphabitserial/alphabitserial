@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @alphabitserial 🏳️‍🌈🏳️‍⚧️ (she/her)
+- 👀 I’m interested in building tools that help people
+- 🌱 I’m currently learning programming from the bottom-up
+- 💞️ I’m looking to collaborate on projects that can expand my knowledge into new domains
+- 📫 Reach me via email, especially if you have a job opportunity for a quick learner seeking mentorship & experience
